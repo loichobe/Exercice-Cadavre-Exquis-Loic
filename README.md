@@ -12,3 +12,6 @@ Au final, c'est pas comme si j'avais ~~_foiré_~~ depuis le début.
 Mais ce n'est pas bien grave, se *foirer* c'est **apprendre**.
 Une erreur n'est jamais qu'une **expérience** supplémentaire.
 Et si besoin, la `Team Rocket` est là pour aider!
+
+**_L'erreur_** ce n'est jamais qu'un synonyme d'apprentissage, et apprendre c'est une **_Réussite_** ! :smiley:
+Bravo et vivmeent le micro, tu seras un grand :dragon: ! 
