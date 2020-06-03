@@ -7,4 +7,4 @@
 Au final, c'est pas comme si j'avais ~~_foiré_~~ depuis le début.
 
 # AHEUM 
-###### **raclement de gorge**
+###### \*raclement de gorge*
