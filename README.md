@@ -8,3 +8,7 @@ Au final, c'est pas comme si j'avais ~~_foiré_~~ depuis le début.
 
 # AHEUM 
 ###### \*raclement de gorge*
+
+Mais ce n'est pas bien grave, se *foirer* c'est **apprendre**.
+Une erreur n'est jamais qu'une **expérience** supplémentaire.
+Et si besoin, la `Team Rocket` est là pour aider!
