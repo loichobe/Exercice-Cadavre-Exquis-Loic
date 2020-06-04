@@ -15,3 +15,7 @@ Et si besoin, la `Team Rocket` est là pour aider!
 
 **_L'erreur_** ce n'est jamais qu'un synonyme d'apprentissage, et apprendre c'est une **_Réussite_** ! :smiley:
 Bravo et vivmeent le micro, tu seras un grand :dragon: ! 
+
+Yeaah ! *ça fait étrange d'entendre ta voix* et tes blagues sont ~~nuls~~.
+Qui est __l'idiot__ qui a parlé de la *team rocket* maintenant j'ai la réplique *_culte_* en tête. 
+Bouhouhou :smiley:
