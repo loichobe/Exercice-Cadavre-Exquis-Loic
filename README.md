@@ -19,3 +19,6 @@ Bravo et vivmeent le micro, tu seras un grand :dragon: !
 Yeaah ! *ça fait étrange d'entendre ta voix* et tes blagues sont ~~nuls~~.
 Qui est __l'idiot__ qui a parlé de la *team rocket* maintenant j'ai la réplique *_culte_* en tête. 
 Bouhouhou :smiley:
+
+La `Team Rocket`, plus rapide que la lumière! Rendez vous tous, ou se sera la guerre (guerre, guerre)! **Miaouss!** Oui la __(gué)guerre!__
+Ne me remerciez pas pour cette douce melodie qui ne vous quittera pas cette journée :smiley: et en avant la  `Team Rocket`!!!
